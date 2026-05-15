@@ -1,4 +1,4 @@
-
+Enhance your Bitdefender VPN experience with instant Bitdefender VPN Plugin | custom-configurations + NAT-firewall, the #1 plugin. Includes custom-configurations and NAT-firewall
 
 
 
